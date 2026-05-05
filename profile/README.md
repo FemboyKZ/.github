@@ -2,11 +2,11 @@
 
 [discord.gg/FKZ](https://discord.gg/fkz)
 
-[Femboy.KZ](https://femboy.kz)
+[FemboyKZ.com](https://femboykz.com)
 
 [Steam Group](https://steamcommunity.com/groups/FemboyKZ)
 
-[Docs](https://docs.femboy.kz)
+[Docs](https://docs.femboykz.com)
 
 [Donate to us <3](https://ko-fi.com/femkz)
 
